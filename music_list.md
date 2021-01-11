@@ -1,3 +1,4 @@
 ballade
 dance
 pop
+Jazz
