@@ -6,3 +6,5 @@
 5. Snowman - Sia
 6. 2002 - Anne-Marie
 7. Dance Monkey - Tones And I
+8. 12:45 - Ethem
+9. Paris in The Rain - Lauv
