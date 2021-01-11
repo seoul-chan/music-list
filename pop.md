@@ -6,4 +6,3 @@
 5. Snowman - Sia
 6. 2002 - Anne-Marie
 7. Dance Monkey - Tones And I
-8. 사랑하게 될 줄 알았어 - 전미도
